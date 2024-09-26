@@ -1,0 +1,4 @@
+- Howdy! I'm Catsriel.
+- I'm a norwegian that sometimes makes stupid stuff online.
+- I'm 16 Years old, and have an interest in Game Development and Web Development.
+- Main account is @catsrieldreemurr
